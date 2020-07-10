@@ -1,7 +1,7 @@
 ### Hi there 🙋‍♂️ Assalamualaikum 😙
 
-Honestly I don't even know why I'm here on `😼GitHub`. I'm no `👨‍💻Programmer`. For living I work as a `👨‍🔬Chemist`. I even fail my Computer Science degree. **Two times!** 🤪
-Lastly if any of you still curious about me please found me at 📝<https://ahmadiham.id> or 🌱[https://t.me/halamanbelakang](@halamanbelakang]). 
+Honestly I don't even know why I'm here on `😼Github.` I'm no `👨‍💻Programmer.` For living I work as a `👨‍🔬Chemist.` I even fail my Computer Science degree. **Two times!** 🤪
+Lastly if any of you still curious about me please found me at 📝 <https://ahmadiham.id> or 🌱 [https://t.me/halamanbelakang](@halamanbelakang). 
 <!--
 **ahmadihamid/ahmadihamid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
